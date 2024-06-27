@@ -1,1 +1,0 @@
-# utannatan.cek-khodam
